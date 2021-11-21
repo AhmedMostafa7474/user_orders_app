@@ -7,3 +7,6 @@ then you can show the graph by the button at the center
 
 https://user-images.githubusercontent.com/36231373/142781269-cb21c7bb-ddd9-490c-8c03-8b6b8e2a2113.mp4
 
+
+https://user-images.githubusercontent.com/36231373/142781583-471d3cd9-186a-4dee-8386-a17134c40e29.mp4
+
